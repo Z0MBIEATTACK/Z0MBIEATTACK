@@ -1,16 +1,35 @@
-## Hi there 👋
+# 👀Some info for ch area👀
+---------------------------------------
 
-<!--
-**Z0MBIEATTACK/Z0MBIEATTACK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Usually with friends or my partner, but im free to chat with most of the time
 
-Here are some ideas to get you started:
+Hispanic, I only speak english though
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---------------------------------------
+
+● 🟢 Feel free to chat, I am a bit awkward tho
+
+● 🌙 Most likely afk or just chilling 
+
+● ⛔ Busy, or dont wanna int for a bit
+
+
+--‼️DNI‼️--
+
+● Darkshippers & Proshippers
+
+● Maga and right wing
+
+● Ruseame, Amemex, and Tr shippers 
+
+● 13 and under
+
+● Tr cosplayers
+
+---------------------------------------
+
+--Ships--
+
+● Mainly Finpol but I also ship UsUk( I personally don't see them as related, dni if ur not ok with this)
+
+(For more info abt me and other fandoms I'm in, visit my sp or main acc)
